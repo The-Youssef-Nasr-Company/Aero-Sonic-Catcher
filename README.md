@@ -45,7 +45,7 @@ It's the Sonic Aero Custodian!
   
 > Sonic: *drags Aero's saliva then throws saliva at him*
   
-> Aero: ?
+> Aero: OOF! Huh?
   
 > Sonic: Creepers!
   
