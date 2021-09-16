@@ -58,3 +58,7 @@ It's the Sonic Aero Custodian!
 > Aero: AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
   
 > Sonic: See ya!
+
+ 
+  
+This shows everything about Aero and Sonic. Sonic runs away from Aero, and Aero chases him. __WHOOOSH!__ Aero's here. And here comes Sonic!
