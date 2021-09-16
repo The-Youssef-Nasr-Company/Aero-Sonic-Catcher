@@ -41,7 +41,7 @@ It's the Sonic Aero Custodian!
   
 > Sonic: __*WHOOOOOOOOSH (plus pew)*__
 
-> Aero: ___*WHOOOOOOOOOOOOOOOOOOOOSH*__
+> Aero: __*WHOOOOOOOOOOOOOOOOOOOOSH*__
   
 > Sonic: *drags Aero's saliva then throws saliva at him*
   
