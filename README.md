@@ -23,7 +23,7 @@ It's the Sonic Aero Custodian!
 
 > Sonic: _Not funny...._
 
-> Aero: __*spits raspberry to Sonic*__
+> Aero: __*blows raspberry to Sonic*__
 
 > Sonic: Huh...
 
