@@ -19,7 +19,7 @@ It's the Sonic Aero Custodian!
 
 > Sonic: Ow that hurt!
 
-> Aero: __hehehehehehehe__ <D
+> Aero: __hehehehehehehe__ 😄
 
 > Sonic: _Not funny...._
 
