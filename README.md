@@ -11,7 +11,7 @@ It's the Sonic Aero Custodian!
 
 > Sonic: You're too slow!
 
-> Aero: __*WHOOOOOOSH*__
+> Aero: __\*WHOOOOOOSH\*__
 
 > Aero is the best!
 
@@ -23,13 +23,13 @@ It's the Sonic Aero Custodian!
 
 > Sonic: _Not funny...._
 
-> Aero: __*blows raspberry to Sonic*__
+> Aero: __\*blows raspberry to Sonic\*__
 
 > Sonic: Huh...
 
 > Sonic: What if I use Aero's saliva to trick him...?
   
-> Sonic: *whistles to Aero*
+> Sonic: \*whistles to Aero\*
   
 > Aero: Huh?
   
@@ -39,11 +39,11 @@ It's the Sonic Aero Custodian!
   
 > Aero: __RAWR!!!!!!!!!!!!!!!!!__
   
-> Sonic: __*WHOOOOOOOOSH (plus pew)*__
+> Sonic: __\*WHOOOOOOOOSH (plus pew)\*__
 
-> Aero: __*WHOOOOOOOOOOOOOOOOOOOOSH*__
+> Aero: __\*WHOOOOOOOOOOOOOOOOOOOOSH\*__
   
-> Sonic: *drags Aero's saliva then throws saliva at him*
+> Sonic: \*drags Aero's saliva then throws saliva at him\*
   
 > Aero: OOF! Huh?
   
@@ -51,7 +51,7 @@ It's the Sonic Aero Custodian!
   
 > Aero: !
   
-> Creepers: __*sizzles then explodes on Aero*__
+> Creepers: __\*sizzles then explodes on Aero\*__
   
 > Aero: OOF!
   
